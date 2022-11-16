@@ -1,1 +1,1 @@
-# supreme.vpn.official.net
+# supreme.vpn.fufufufufuufofficial.net
